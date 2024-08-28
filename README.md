@@ -9,8 +9,8 @@ Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-912
 * 🌍  I'm based in 🆃🅷🅰🅸
 * 🖥️  See my portfolio at [MyPortfolio](http://www.canva.com/design/DAGIYZH8uOw/vmu-rfVo5-OGfzM-uw5LQA/edit)
 * ✉️  You can contact me at [burapajannak.dev@gmail.c](mailto:burapajannak.dev@gmail.com)
-* 🧠  I'm learning ผ
-* 🤝  I'm open to collaborating on ผ
+* 🧠  I'm learning 
+* 🤝  I'm open to collaborating on 
 * ⚡  🅻🅾🆅🅴 ​ 🅿🆁🅾🅶🆁🅰🅼
 
 ### Skills
